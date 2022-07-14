@@ -11,3 +11,8 @@
 3. Having 7 years of exp
 
 4. Works for EPAM
+
+5. Working in Hyderabad location
+
+6. Stays in Hyderabad
+
